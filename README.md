@@ -1,7 +1,7 @@
 - call me al or nep, maybe luci if ur from that one discord server
 - im interested in astronomy, super huge fan
 - i dont mind being cuddled with,
-- my roblox is prvsyz and my discord is magneluci if you want to add me.
+- my roblox is prvsyz and my discord is stainsofbluepride if you want to add me.
 - i go by he/him
 
 <!---
